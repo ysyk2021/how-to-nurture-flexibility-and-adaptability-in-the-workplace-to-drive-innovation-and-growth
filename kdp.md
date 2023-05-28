@@ -41,5 +41,4 @@ MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles
 17. Learning and development
 18. Strategic planning for innovation
 19. Continuous improvement
-20. Digital transformation at work.
-
+20. Digital transformation at work
