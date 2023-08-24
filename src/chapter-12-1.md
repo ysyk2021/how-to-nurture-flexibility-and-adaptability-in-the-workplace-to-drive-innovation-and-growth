@@ -1,5 +1,3 @@
-Creating a Roadmap for Nurturing Flexibility and Adaptability in the Workplace to Drive Innovation and Growth
-=======================================================================================================================================================================
 
 Implementing lasting change requires a thoughtful, strategic approach. In this chapter, we will discuss strategies for creating a roadmap for nurturing flexibility and adaptability in the workplace to drive innovation and growth.
 

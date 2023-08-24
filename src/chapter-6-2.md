@@ -1,5 +1,3 @@
-Techniques for Building Diverse and Cross-Functional Teams
-===================================================================================================================
 
 Building cross-functional teams is essential for driving flexibility and adaptability in the workplace. In this chapter, we will discuss techniques for building diverse and cross-functional teams.
 
@@ -32,5 +30,4 @@ Conclusion
 ----------
 
 Building diverse and cross-functional teams is essential for driving flexibility and adaptability in the workplace. By identifying core competencies, fostering open communication, promoting continuous learning, creating a supportive culture, and breaking down silos, organizations can build effective cross-functional teams that can drive innovation and growth. Remember to prioritize these techniques when building cross-functional teams to ensure that your team is primed for success in today's dynamic business environment.
-
 

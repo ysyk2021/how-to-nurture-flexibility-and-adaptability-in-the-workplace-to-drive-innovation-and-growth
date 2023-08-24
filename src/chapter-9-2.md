@@ -1,5 +1,3 @@
-Strategies for Managing Change and Addressing Resistance within the Organization
-======================================================================================================================================
 
 Managing change and overcoming resistance is essential for fostering flexibility and adaptability in the workplace. In this chapter, we will discuss strategies for managing change and addressing resistance within the organization.
 

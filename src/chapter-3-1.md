@@ -1,5 +1,3 @@
-Overview of Creating a Culture of Flexibility and Adaptability in the Workplace
-==============================================================================================================================================
 
 Creating a culture of flexibility and adaptability is crucial for driving innovation and growth in the workplace. In this chapter, we will provide an overview of how to create a culture of flexibility and adaptability in the workplace.
 

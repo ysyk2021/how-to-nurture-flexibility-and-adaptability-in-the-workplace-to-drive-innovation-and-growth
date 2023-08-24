@@ -1,5 +1,3 @@
-Chapter 11: Overcoming Obstacles to Flexibility and Adaptability in the Workplace
-=================================================================================
 
 Fostering a culture of flexibility and adaptability in the workplace can be challenging, as there are often obstacles that must be overcome. In this chapter, we will discuss common obstacles to fostering flexibility and adaptability in the workplace, as well as strategies for overcoming them.
 

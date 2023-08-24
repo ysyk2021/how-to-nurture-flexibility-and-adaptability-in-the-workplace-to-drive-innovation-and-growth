@@ -1,5 +1,3 @@
-Tracking Progress and Celebrating Successes
-=====================================================================================================
 
 Implementing lasting change requires a thoughtful, strategic approach. In this chapter, we will discuss strategies for tracking progress and celebrating successes as you implement your roadmap for nurturing flexibility and adaptability in the workplace to drive innovation and growth.
 

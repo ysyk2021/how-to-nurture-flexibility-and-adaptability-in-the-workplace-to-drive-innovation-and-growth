@@ -1,5 +1,3 @@
-Chapter 3: Creating a Culture of Flexibility and Adaptability
-=============================================================
 
 Creating a culture of flexibility and adaptability is essential for driving innovation and growth in the workplace. In this chapter, we will provide an overview of creating a culture of flexibility and adaptability, as well as strategies for fostering a culture that encourages these qualities.
 

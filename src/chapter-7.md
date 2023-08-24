@@ -1,5 +1,3 @@
-Chapter 7: Leveraging Technology and Innovation
-===============================================
 
 Technology and innovation play a crucial role in driving flexibility and adaptability in the workplace. In this chapter, we will provide an overview of leveraging technology and innovation to drive flexibility and adaptability, as well as strategies for adopting innovative technology solutions and practices.
 

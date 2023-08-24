@@ -1,5 +1,3 @@
-Definition of Flexibility and Adaptability in the Workplace
-===================================================================================================================================
 
 Flexibility and adaptability are crucial components of driving innovation and growth in the workplace. In this chapter, we will define what flexibility and adaptability mean in the context of the workplace.
 

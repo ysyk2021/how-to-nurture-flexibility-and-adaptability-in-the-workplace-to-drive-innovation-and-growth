@@ -1,5 +1,3 @@
-Chapter 6: Developing Cross-Functional Teams and Skills
-=======================================================
 
 Cross-functional teams are composed of individuals with diverse skills, knowledge, and backgrounds who work together to achieve a common goal. In this chapter, we will discuss the importance of cross-functional teams and skills in driving flexibility and adaptability, as well as techniques for building diverse and cross-functional teams.
 

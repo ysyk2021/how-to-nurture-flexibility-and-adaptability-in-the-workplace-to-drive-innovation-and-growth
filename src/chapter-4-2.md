@@ -1,5 +1,3 @@
-Encouraging Experimentation and Risk-taking
-======================================================
 
 Innovation requires experimentation and risk-taking. As a leader, it is important to create an environment that supports and encourages team members to experiment and take calculated risks. In this chapter, we will discuss some techniques for promoting experimentation and risk-taking among team members.
 

@@ -1,5 +1,3 @@
-Chapter 9: Managing Change and Overcoming Resistance
-====================================================
 
 Managing change can be challenging, especially when it involves introducing new policies or practices related to flexibility and adaptability. In this chapter, we will provide an overview of managing change and overcoming resistance to drive flexibility and adaptability, as well as strategies for addressing resistance within the organization.
 
