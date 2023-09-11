@@ -1,5 +1,4 @@
-Chapter 3: Common Obstacles to Fostering Flexibility and Adaptability
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 in the Workplace
 ----------------

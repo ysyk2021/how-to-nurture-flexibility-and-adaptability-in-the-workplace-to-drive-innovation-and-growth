@@ -1,5 +1,4 @@
-Chapter 1: Overview of Managing Change and Overcoming Resistance
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Driving Flexibility and Adaptability in the Workplace
 -----------------------------------------------------

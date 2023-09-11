@@ -1,5 +1,4 @@
-Chapter 4: Strategies for Overcoming Common Obstacles
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 to Fostering Flexibility and Adaptability
 -----------------------------------------

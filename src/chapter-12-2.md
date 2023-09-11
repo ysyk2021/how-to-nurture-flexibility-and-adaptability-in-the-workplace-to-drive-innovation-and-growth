@@ -1,5 +1,4 @@
-Chapter 6: Tracking Progress and Celebrating Successes
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into the importance of tracking progress and celebrating successes in nurturing flexibility and adaptability in the workplace to drive innovation and growth. As we've discussed throughout this book, fostering a culture of adaptability is crucial for staying competitive in today's ever-changing business landscape. However, it's equally important to measure and acknowledge the strides made in this journey.
 

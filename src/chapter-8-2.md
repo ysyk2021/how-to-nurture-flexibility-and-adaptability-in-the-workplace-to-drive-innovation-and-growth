@@ -1,5 +1,4 @@
-Chapter 5: Techniques for Providing Training and Development Opportunities to Employees
-=======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore a range of techniques and best practices for organizations looking to provide effective training and development opportunities to their employees. Nurturing skills and competencies is essential in fostering flexibility and adaptability, ultimately driving innovation and growth within the workplace.
 

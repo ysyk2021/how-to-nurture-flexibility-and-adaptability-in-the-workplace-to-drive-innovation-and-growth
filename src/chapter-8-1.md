@@ -1,5 +1,4 @@
-Chapter 6: Importance of Learning and Development Opportunities
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 in Fostering Flexibility and Adaptability
 -----------------------------------------

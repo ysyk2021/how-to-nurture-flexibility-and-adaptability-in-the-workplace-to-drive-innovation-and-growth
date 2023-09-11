@@ -1,5 +1,4 @@
-Chapter 2: Strategies for Managing Change and Addressing Resistance
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Within the Organization
 -----------------------
